@@ -1,9 +1,11 @@
+# Announcement : 
 
-Hello, they took down all my previous accounts, i'm re-launching soon! 
-don't forget to follow me to receive updates ;) 
+Hello, they took down all my previous accounts, re-launching soon! 
+follow me to receive updates ;) 
 
-update : I added the pgp
+**Update** : As i said i added the pgp.
 
-update 2 : forum will be by invite only, send me an email if you want to join, make sure to use the pgp.
+**Update 2** : forum will be by invite only, send me an email if you want to join or DM me, for email make sure to use the pgp.
 
-update 3 : we just tested our payment system, lunching in 2 weeks or so :)
+**Update 3** : for those who don't follow me, we just tested our payment system this evening, launching in 2 weeks or so :)
+until then, see ya!
